@@ -1,10 +1,5 @@
 # Sidney Crosby: The Legacy of a Hockey Icon
 
-**Slug:** sidney-crosby-the-legacy-of-a-hockey-icon  
-
-**Meta Description:** Explore the remarkable career of Sidney Crosby, one of hockey's greatest players. From his early days to becoming a Penguins legend alongside Mario Lemieux and under Mike Sullivan’s coaching, discover what makes Crosby an enduring icon in NHL history.  
-
----
 
 ## A Star Is Born  
 
